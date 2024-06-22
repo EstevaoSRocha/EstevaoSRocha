@@ -11,4 +11,4 @@ Meu nome é Estevao Santos Rocha
 
 ### Você pode entrar em contato comigo 📧
 
-- 00001106942231sp@al.educacao.sp.gov.br
+- estevaosr2511@gmail.com
